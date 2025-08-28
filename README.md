@@ -14,7 +14,7 @@ My background includes:
 - Administering and managing multiple API drive SaaS systems and integrations between them at work.
 - Providing business critical data to users from managers and front-end staff all the way to executives.
 
-My interest include:
+My interests include:
 - Spanish and Portuguese as foreign languages
 - Hiking and nature
 - Iberian peninsula history & culture
